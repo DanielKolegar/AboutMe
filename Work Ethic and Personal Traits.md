@@ -17,7 +17,7 @@
   - Presenting in front of others (university, team meetings)
 - **Consistency and perseverance**  
   - Staying on track with university studies  
-  - Over 600 consecutive days on Duolingo  
+  - Over 700 consecutive days on Duolingo  
 - **Learning from others' strengths and weaknesses**  
   - I adopt positive work habits and avoid behaviors that have been perceived negatively in colleagues
 

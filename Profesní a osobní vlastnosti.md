@@ -18,7 +18,7 @@
   - Prezentace před ostatními *(VŠ, týmové porady).*  
 - **Konzistence a vytrvalost**  
   - Udržení se na VŠ.
-  - 600+ dní v Duolingu bez přerušení.
+  - 700+ dní v Duolingu bez přerušení.
 - **Inspiruji se dobrými vlastnostmi kolegů a vyvaruji se jejich nedostatků**  
   - Snažím se přebírat pozitivní pracovní návyky a naopak se vyhýbat chování, které bylo u kolegů vnímáno negativně.
 
